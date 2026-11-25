@@ -2,7 +2,7 @@
 
 > **一句话评价：先判断是否适合：专线内网传输与多组广东移动入口，提供60GB至600GB月流量。**
 >
-> 👉 **[官网注册](https://inv02.qytaff.cc/register?aff=29Wq9LnO)** · 建议从 青云VIP1 的短周期开始，先核对客户端和常用节点。
+> 👉 **[官网注册](https://inv02.qytaff.cc/register?aff=GrYcwTm3)** · 建议从 青云VIP1 的短周期开始，先核对客户端和常用节点。
 >
 
 >
@@ -61,7 +61,7 @@
 
 ## 注册
 
-👉 **[前往青云梯注册页面](https://inv02.qytaff.cc/register?aff=29Wq9LnO)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
+👉 **[前往青云梯注册页面](https://inv02.qytaff.cc/register?aff=GrYcwTm3)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
 
 ## 更新
 
